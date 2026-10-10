@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Mohammed-Izzath
 - 👀 I’m interested in Cyber Security.
-- 🌱 I’m currently learning HND @BCAS Campus, Colombo, Sri Lanka.
+- 🌱 I’m currently pursuing my Bachelor studies at Goldsmiths University of London.
 - 📫 How to reach me: You may view my LinkedIn profile www.linkedin.com/in/izzathinayathullah
