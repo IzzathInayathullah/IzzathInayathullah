@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @IzzathInayathullah
 - 👀 Aspiring CyberSecurity Professional.
 - 🌱 I’m currently pursuing my Bachelor studies at Goldsmiths University of London.
-- 📫 How to reach me: You may view my LinkedIn profile www.linkedin.com/in/izzathinayathullah
+- 📫 Let's connect on LinkedIn www.linkedin.com/in/izzathinayathullah
